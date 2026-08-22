@@ -8,4 +8,4 @@ I'm a QA Engineer and Game Designer based in Tokyo. I've spent much of my life e
 * 🌐 I've lived in and traveled across 4 continents. Some of my favorite places are United States of America, France, Japan, South Korea, Germany, Italy, Netherlands, Turkey, UAE and Egypt. I love immersing myself in the world's ancient civilization history.
 * 🗣️ I speak English, Japanese, and Vietnamese.
 
-I'm best reached via **yenlychu@yahoo.com**. Always open to interesting conversations, creative tech collaborations, and indie game dev ideas.
+I'm best reached via **yenlychu@yahoo.com**. I create psychological horror art, and this is my museum: **https://www.instagram.com/blackly.jp/**. Always open to interesting conversations, creative tech collaborations, and indie game dev ideas.
